@@ -1,2 +1,2 @@
 # symmetrical-chainsaw
-ЫЫЫЫЫЫЫЫ
+Just some old student trash
